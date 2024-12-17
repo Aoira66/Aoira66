@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning how to raid and script
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me discord.com useer is luca_to
+- 📫 How to reach me discord.com useer is aoira_a
 - 😄 Pronouns: ...
 - ⚡ Fun fact: i like hacking
 
